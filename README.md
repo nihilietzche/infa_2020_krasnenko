@@ -1,2 +1,2 @@
 # infa_2020_krasnenko
-vsem ku
+ewrwer ewrw er we 
